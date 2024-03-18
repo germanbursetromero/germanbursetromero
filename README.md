@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me: bursetromerogerman@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: Soccer player, full-time student, tutor, intern at Merit Controls
+- ⚡ Fun fact: I am a soccer player, full-time student, tutor, and intern at Merit Controls
 
 <!---
 germanbursetromero/germanbursetromero is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
