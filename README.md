@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me: bursetromerogerman@gmail.com (personal) or gdb90@scarletmail.rutgers.edu (school)
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am a soccer player, full-time student, tutor, and intern at Merit Controls
+- ⚡ Fun fact: I am a soccer player, full-time student, and music producer/DJ.
 
 <!---
 germanbursetromero/germanbursetromero is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
